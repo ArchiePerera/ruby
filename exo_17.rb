@@ -1,5 +1,0 @@
-   #
-  ###
- #####
-####### 
-#que des impairs pour #
